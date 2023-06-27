@@ -1,1 +1,0 @@
-# japanse-chat-statuses
